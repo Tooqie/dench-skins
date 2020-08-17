@@ -18,5 +18,8 @@
 # [aetrnaaberrateFujiwara v3](https://dench.s-ul.eu/1jdbx5TN)
 ![aeterna](https://cdn.discordapp.com/attachments/712278343642513468/742324321367752744/merami.jpg)
 
-# [Vaxei Blue Skin](https://dench.s-ul.eu/3HK0xiox )
+# [Vaxei Blue Skin](https://dench.s-ul.eu/3HK0xiox)
 ![vaxei](https://cdn.discordapp.com/attachments/712278343642513468/742324380888989716/vaxei_blue.jpg)
+
+# [Bloo 1.1](https://tqe.s-ul.eu/nBfbgzLR)
+![bloo](https://skins.osuck.net/uploads/posts/2020-04/1585900489_screenshot8339.jpg)
