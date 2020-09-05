@@ -24,5 +24,5 @@
 # [Bloo 1.1](https://tqe.s-ul.eu/nBfbgzLR)
 ![bloo](https://skins.osuck.net/uploads/posts/2020-04/1585900489_screenshot8339.jpg)
 
-# [Bloo 1.1](https://tqe.s-ul.eu/RhJJCAfx)
+# [Rafis DT + red followslider](https://tqe.s-ul.eu/RhJJCAfx)
 ![bloo](https://osu.ppy.sh/ss/15502051/aefe)
