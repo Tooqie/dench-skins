@@ -25,4 +25,10 @@
 ![bloo](https://skins.osuck.net/uploads/posts/2020-04/1585900489_screenshot8339.jpg)
 
 # [Rafis DT + red followslider](https://tqe.s-ul.eu/RhJJCAfx)
-![bloo](https://osu.ppy.sh/ss/15502051/aefe)
+![rafisnew](https://osu.ppy.sh/ss/15502051/aefe)
+
+# [mathi Andros edit](https://tqe.s-ul.eu/RhJJCAfx)
+![mathiandros](https://skins.osuck.net/uploads/posts/2019-10/1570974990_screenshot6784.jpg)
+
+# [Red_Pixel skin](https://redpixel.s-ul.eu/0EY93MWP)
+![redpixel](https://i.imgur.com/SmVpNf9.png)
