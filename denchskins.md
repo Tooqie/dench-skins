@@ -30,5 +30,5 @@
 # [mathi Andros edit](https://tqe.s-ul.eu/RhJJCAfx)
 ![mathiandros](https://skins.osuck.net/uploads/posts/2019-10/1570974990_screenshot6784.jpg)
 
-# [Red_Pixel skin](https://redpixel.s-ul.eu/0EY93MWP)
+# [Red_Pixel skin](https://puu.sh/Fl7dU/a62058519c.osk)
 ![redpixel](https://i.imgur.com/SmVpNf9.png)
